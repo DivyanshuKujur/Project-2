@@ -1,1 +1,1 @@
-// the new features is = Kujur
+// the new features = Kujur
